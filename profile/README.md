@@ -1,6 +1,6 @@
 # Jalalive APK v26.1.2 Unduh Gratis (Tidak Terkunci) Versi Terbaru untuk Android.
 
-# Unduh: 👉 https://heyapks.com/ 👈📲
+# Unduh: 👉 https://heyapks.com/jaja-live.html 👈📲
 
 ![3b867smWa0H697k](https://github.com/user-attachments/assets/8a70c2a7-e60d-424f-b7dd-c0eca119d830)
 
